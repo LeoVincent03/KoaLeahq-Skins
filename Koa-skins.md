@@ -29,3 +29,6 @@ Let me know if skins are missing/Links don't work by messaging me on discord! Th
 
 # [Aristia Sora ver.](https://puu.sh/ElNSJ/4ab40f20fc.osk)
 ![](https://i.imgur.com/N2TNwoy.png)
+
+# [404 AimNotFound](bit.ly/2mJrwqO)
+![](https://imgur.com/FjHh4D8)
